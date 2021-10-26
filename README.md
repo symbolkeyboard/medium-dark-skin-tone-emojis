@@ -11,3 +11,212 @@ All emojis consist of official emoji characters, emoji names and meanings listed
 
 The easiest way to quickly **copy and paste emojis**.
 ### List of Medium Dark Skin Tone Emojis
+- 👋🏾 Waving Hand: Medium Dark Skin Tone
+- 🤚🏾 Raised Back of Hand: Medium Dark Skin Tone
+- 🖐🏾 Hand with Fingers Splayed: Medium Dark Skin Tone
+- ✋🏾 Raised Hand: Medium Dark Skin Tone
+- 🖖🏾 Vulcan Salute: Medium Dark Skin Tone
+- 👌🏾 OK Hand: Medium Dark Skin Tone
+- 🤏🏾 Pinching Hand: Medium Dark Skin Tone
+- ✌🏾 Victory Hand: Medium Dark Skin Tone
+- 🤞🏾 Crossed Fingers: Medium Dark Skin Tone
+- 🤟🏾 Love You Gesture: Medium Dark Skin Tone
+- 🤘🏾 Sign of the Horns: Medium Dark Skin Tone
+- 🤙🏾 Call Me Hand: Medium Dark Skin Tone
+- 👈🏾 Backhand Index Pointing Left: Medium Dark Skin Tone
+- 👉🏾 Backhand Index Pointing Right: Medium Dark Skin Tone
+- 👆🏾 Backhand Index Pointing Up: Medium Dark Skin Tone
+- 👇🏾 Backhand Index Pointing Down: Medium Dark Skin Tone
+- ☝🏾 Index Pointing Up: Medium Dark Skin Tone
+- 🖕🏾 Middle Finger: Medium Dark Skin Tone
+- 👍🏾 Thumbs Up: Medium Dark Skin Tone
+- 👎🏾 Thumbs Down: Medium Dark Skin Tone
+- ✊🏾 Raised Fist: Medium Dark Skin Tone
+- 👊🏾 Oncoming Fist: Medium Dark Skin Tone
+- 🤛🏾 Left Facing Fist: Medium Dark Skin Tone
+- 🤜🏾 Right Facing Fist: Medium Dark Skin Tone
+- 👏🏾 Clapping Hands: Medium Dark Skin Tone
+- 🙌🏾 Raising Hands: Medium Dark Skin Tone
+- 👐🏾 Open Hands: Medium Dark Skin Tone
+- 🤲🏾 Palms Up Together: Medium Dark Skin Tone
+- 🙏🏾 Folded Hands: Medium Dark Skin Tone
+- ✍🏾 Writing Hand: Medium Dark Skin Tone
+- 💅🏾 Nail Polish: Medium Dark Skin Tone
+- 🤳🏾 Selfie: Medium Dark Skin Tone
+- 💪🏾 Flexed Biceps: Medium Dark Skin Tone
+- 🦵🏾 Leg: Medium Dark Skin Tone
+- 🦶🏾 Foot: Medium Dark Skin Tone
+- 👂🏾 Ear: Medium Dark Skin Tone
+- 🦻🏾 Ear with Hearing Aid: Medium Dark Skin Tone
+- 👃🏾 Nose: Medium Dark Skin Tone
+- 👶🏾 Baby: Medium Dark Skin Tone
+- 🧒🏾 Child: Medium Dark Skin Tone
+- 👦🏾 Boy: Medium Dark Skin Tone
+- 👧🏾 Girl: Medium Dark Skin Tone
+- 🧑🏾 Person: Medium Dark Skin Tone
+- 🧔🏾 Person: Medium Dark Skin Tone, Beard
+- 👨🏾 Man: Medium Dark Skin Tone
+- 👩🏾 Woman: Medium Dark Skin Tone
+- 👨🏾‍🦰 Man: Medium Dark Skin Tone, Red Hair
+- 👩🏾‍🦰 Woman: Medium Dark Skin Tone, Red Hair
+- 👨🏾‍🦱 Man: Medium Dark Skin Tone, Curly Hair
+- 👩🏾‍🦱 Woman: Medium Dark Skin Tone, Curly Hair
+- 👨🏾‍🦳 Man: Medium Dark Skin Tone, White Hair
+- 👩🏾‍🦳 Woman: Medium Dark Skin Tone, White Hair
+- 👱🏾‍♂️ Man: Medium Dark Skin Tone, Blond Hair
+- 👱🏾‍♀️ Woman: Medium Dark Skin Tone, Blond Hair
+- 👨🏾‍🦲 Man: Medium Dark Skin Tone, Bald
+- 👩🏾‍🦲 Woman: Medium Dark Skin Tone, Bald
+- 🧓🏾 Older Person: Medium Dark Skin Tone
+- 👴🏾 Old Man: Medium Dark Skin Tone
+- 👵🏾 Old Woman: Medium Dark Skin Tone
+- 👼🏾 Baby Angel: Medium Dark Skin Tone
+- 💑🏾 Couple with Heart: Medium Dark Skin Tone
+- 💏🏾 Kiss: Medium Dark Skin Tone
+- 🙍🏾‍♂️ Man Frowning: Medium Dark Skin Tone
+- 🙍🏾‍♀️ Woman Frowning: Medium Dark Skin Tone
+- 🙎🏾‍♂️ Man Pouting: Medium Dark Skin Tone
+- 🙎🏾‍♀️ Woman Pouting: Medium Dark Skin Tone
+- 🙅🏾‍♂️ Man Gesturing No: Medium Dark Skin Tone
+- 🙅🏾‍♀️ Woman Gesturing No: Medium Dark Skin Tone
+- 🙆🏾‍♂️ Man Gesturing OK: Medium Dark Skin Tone
+- 🙆🏾‍♀️ Woman Gesturing OK: Medium Dark Skin Tone
+- 💁🏾‍♂️ Man Tipping Hand: Medium Dark Skin Tone
+- 💁🏾‍♀️ Woman Tipping Hand: Medium Dark Skin Tone
+- 🙋🏾‍♂️ Man Raising Hand: Medium Dark Skin Tone
+- 🙋🏾‍♀️ Woman Raising Hand: Medium Dark Skin Tone
+- 🧏🏾‍♂️ Deaf Man: Medium Dark Skin Tone
+- 🧏🏾‍♀️ Deaf Woman: Medium Dark Skin Tone
+- 🙇🏾‍♂️ Man Bowing: Medium Dark Skin Tone
+- 🙇🏾‍♀️ Woman Bowing: Medium Dark Skin Tone
+- 🤦🏾‍♂️ Man Facepalming: Medium Dark Skin Tone
+- 🤦🏾‍♀️ Woman Facepalming: Medium Dark Skin Tone
+- 🤷🏾‍♂️ Man Shrugging: Medium Dark Skin Tone
+- 🤷🏾‍♀️ Woman Shrugging: Medium Dark Skin Tone
+- 💆🏾‍♂️ Man Getting Massage: Medium Dark Skin Tone
+- 💆🏾‍♀️ Woman Getting Massage: Medium Dark Skin Tone
+- 💇🏾‍♂️ Man Getting Haircut: Medium Dark Skin Tone
+- 💇🏾‍♀️ Woman Getting Haircut: Medium Dark Skin Tone
+- 🤱🏾 Breast Feeding: Medium Dark Skin Tone
+- 🤰🏾 Pregnant Woman: Medium Dark Skin Tone
+- 👨🏾‍⚕️ Man Health Worker: Medium Dark Skin Tone
+- 👩🏾‍⚕️ Woman Health Worker: Medium Dark Skin Tone
+- 👨🏾‍🎓 Man Student: Medium Dark Skin Tone
+- 👩🏾‍🎓 Woman Student: Medium Dark Skin Tone
+- 👨🏾‍🏫 Man Teacher: Medium Dark Skin Tone
+- 👩🏾‍🏫 Woman Teacher: Medium Dark Skin Tone
+- 👨🏾‍⚖️ Man Judge: Medium Dark Skin Tone
+- 👩🏾‍⚖️ Woman Judge: Medium Dark Skin Tone
+- 👨🏾‍🌾 Man Farmer: Medium Dark Skin Tone
+- 👩🏾‍🌾 Woman Farmer: Medium Dark Skin Tone
+- 👨🏾‍🍳 Man Cook: Medium Dark Skin Tone
+- 👩🏾‍🍳 Woman Cook: Medium Dark Skin Tone
+- 👨🏾‍🔧 Man Mechanic: Medium Dark Skin Tone
+- 👩🏾‍🔧 Woman Mechanic: Medium Dark Skin Tone
+- 👨🏾‍🏭 Man Factory Worker: Medium Dark Skin Tone
+- 👩🏾‍🏭 Woman Factory Worker: Medium Dark Skin Tone
+- 👨🏾‍💼 Man Office Worker: Medium Dark Skin Tone
+- 👩🏾‍💼 Woman Office Worker: Medium Dark Skin Tone
+- 👨🏾‍🔬 Man Scientist: Medium Dark Skin Tone
+- 👩🏾‍🔬 Woman Scientist: Medium Dark Skin Tone
+- 👨🏾‍💻 Man Technologist: Medium Dark Skin Tone
+- 👩🏾‍💻 Woman Technologist: Medium Dark Skin Tone
+- 👨🏾‍🎤 Man Singer: Medium Dark Skin Tone
+- 👩🏾‍🎤 Woman Singer: Medium Dark Skin Tone
+- 👨🏾‍🎨 Man Artist: Medium Dark Skin Tone
+- 👩🏾‍🎨 Woman Artist: Medium Dark Skin Tone
+- 👨🏾‍✈️ Man Pilot: Medium Dark Skin Tone
+- 👩🏾‍✈️ Woman Pilot: Medium Dark Skin Tone
+- 👨🏾‍🚀 Man Astronaut: Medium Dark Skin Tone
+- 👩🏾‍🚀 Woman Astronaut: Medium Dark Skin Tone
+- 👨🏾‍🚒 Man Firefighter: Medium Dark Skin Tone
+- 👩🏾‍🚒 Woman Firefighter: Medium Dark Skin Tone
+- 👮🏾‍♂️ Man Police Officer: Medium Dark Skin Tone
+- 👮🏾‍♀️ Woman Police Officer: Medium Dark Skin Tone
+- 🕵🏾‍♂️ Man Detective: Medium Dark Skin Tone
+- 🕵🏾‍♀️ Woman Detective: Medium Dark Skin Tone
+- 💂🏾‍♂️ Man Guard: Medium Dark Skin Tone
+- 💂🏾‍♀️ Woman Guard: Medium Dark Skin Tone
+- 👷🏾‍♂️ Man Construction Worker: Medium Dark Skin Tone
+- 👷🏾‍♀️ Woman Construction Worker: Medium Dark Skin Tone
+- 🤴🏾 Prince: Medium Dark Skin Tone
+- 👸🏾 Princess: Medium Dark Skin Tone
+- 🎅🏾 Santa Claus: Medium Dark Skin Tone
+- 🤶🏾 Mrs. Claus: Medium Dark Skin Tone
+- 👳🏾‍♂️ Man Wearing Turban: Medium Dark Skin Tone
+- 👳🏾‍♀️ Woman Wearing Turban: Medium Dark Skin Tone
+- 👲🏾 Person with Skullcap: Medium Dark Skin Tone
+- 🧕🏾 Woman with Headscarf: Medium Dark Skin Tone
+- 🤵🏾 Person in Tuxedo: Medium Dark Skin Tone
+- 👰🏾 Person With Veil: Medium Dark Skin Tone
+- 🦸🏾‍♂️ Man Superhero: Medium Dark Skin Tone
+- 🦸🏾‍♀️ Woman Superhero: Medium Dark Skin Tone
+- 🦹🏾‍♂️ Man Supervillain: Medium Dark Skin Tone
+- 🦹🏾‍♀️ Woman Supervillain: Medium Dark Skin Tone
+- 🧙🏾‍♂️ Man Mage: Medium Dark Skin Tone
+- 🧙🏾‍♀️ Woman Mage: Medium Dark Skin Tone
+- 🧚🏾‍♂️ Man Fairy: Medium Dark Skin Tone
+- 🧚🏾‍♀️ Woman Fairy: Medium Dark Skin Tone
+- 🧛🏾‍♂️ Man Vampire: Medium Dark Skin Tone
+- 🧛🏾‍♀️ Woman Vampire: Medium Dark Skin Tone
+- 🧜🏾‍♂️ Merman: Medium Dark Skin Tone
+- 🧜🏾‍♀️ Mermaid: Medium Dark Skin Tone
+- 🧝🏾 Elf: Medium Dark Skin Tone
+- 🧝🏾‍♂️ Man Elf: Medium Dark Skin Tone
+- 🧝🏾‍♀️ Woman Elf: Medium Dark Skin Tone
+- 🚶🏾‍♂️ Man Walking: Medium Dark Skin Tone
+- 🚶🏾‍♀️ Woman Walking: Medium Dark Skin Tone
+- 🧍🏾 Person Standing: Medium Dark Skin Tone
+- 🧍🏾‍♂️ Man Standing: Medium Dark Skin Tone
+- 🧍🏾‍♀️ Woman Standing: Medium Dark Skin Tone
+- 🧎🏾 Person Kneeling: Medium Dark Skin Tone
+- 🧎🏾‍♂️ Man Kneeling: Medium Dark Skin Tone
+- 🧎🏾‍♀️ Woman Kneeling: Medium Dark Skin Tone
+- 👫🏾 Woman and Man Holding Hands: Medium Dark Skin Tone
+- 👬🏾 Men Holding Hands: Medium Dark Skin Tone
+- 👭🏾 Women Holding Hands: Medium Dark Skin Tone
+- 👨🏾‍🦯 Man with White Cane: Medium Dark Skin Tone
+- 👩🏾‍🦯 Woman with White Cane: Medium Dark Skin Tone
+- 👨🏾‍🦼 Man in Motorized Wheelchair: Medium Dark Skin Tone
+- 👩🏾‍🦼 Woman in Motorized Wheelchair: Medium Dark Skin Tone
+- 👨🏾‍🦽 Man in Manual Wheelchair: Medium Dark Skin Tone
+- 👩🏾‍🦽 Woman in Manual Wheelchair: Medium Dark Skin Tone
+- 🏃🏾‍♂️ Man Running: Medium Dark Skin Tone
+- 🏃🏾‍♀️ Woman Running: Medium Dark Skin Tone
+- 🕺🏾 Man Dancing: Medium Dark Skin Tone
+- 💃🏾 Woman Dancing: Medium Dark Skin Tone
+- 🕴🏾 Person in Suit Levitating: Medium Dark Skin Tone
+- 🧖🏾‍♂️ Man in Steamy Room: Medium Dark Skin Tone
+- 🧖🏾‍♀️ Woman in Steamy Room: Medium Dark Skin Tone
+- 🤹🏾‍♂️ Man Juggling: Medium Dark Skin Tone
+- 🤹🏾‍♀️ Woman Juggling: Medium Dark Skin Tone
+- 🧘🏾‍♂️ Man in Lotus Position: Medium Dark Skin Tone
+- 🧘🏾‍♀️ Woman in Lotus Position: Medium Dark Skin Tone
+- 🤸🏾‍♂️ Man Cartwheeling: Medium Dark Skin Tone
+- 🤸🏾‍♀️ Woman Cartwheeling: Medium Dark Skin Tone
+- 🏌🏾‍♂️ Man Golfing: Medium Dark Skin Tone
+- 🏌🏾‍♀️ Woman Golfing: Medium Dark Skin Tone
+- ⛹🏾‍♂️ Man Bouncing Ball: Medium Dark Skin Tone
+- ⛹🏾‍♀️ Woman Bouncing Ball: Medium Dark Skin Tone
+- 🤾🏾‍♂️ Man Playing Handball: Medium Dark Skin Tone
+- 🤾🏾‍♀️ Woman Playing Handball: Medium Dark Skin Tone
+- 🏋🏾‍♂️ Man Lifting Weights: Medium Dark Skin Tone
+- 🏋🏾‍♀️ Woman Lifting Weights: Medium Dark Skin Tone
+- 🚴🏾‍♂️ Man Biking: Medium Dark Skin Tone
+- 🚴🏾‍♀️ Woman Biking: Medium Dark Skin Tone
+- 🏇🏾 Horse Racing: Medium Dark Skin Tone
+- 🏂🏾 Snowboarder: Medium Dark Skin Tone
+- 🏄🏾‍♂️ Man Surfing: Medium Dark Skin Tone
+- 🏄🏾‍♀️ Woman Surfing: Medium Dark Skin Tone
+- 🚣🏾‍♂️ Man Rowing Boat: Medium Dark Skin Tone
+- 🚣🏾‍♀️ Woman Rowing Boat: Medium Dark Skin Tone
+- 🏊🏾‍♂️ Man Swimming: Medium Dark Skin Tone
+- 🏊🏾‍♀️ Woman Swimming: Medium Dark Skin Tone
+- 🤽🏾‍♂️ Man Playing Water Polo: Medium Dark Skin Tone
+- 🤽🏾‍♀️ Woman Playing Water Polo: Medium Dark Skin Tone
+- 🧗🏾‍♂️ Man Climbing: Medium Dark Skin Tone
+- 🧗🏾‍♀️ Woman Climbing: Medium Dark Skin Tone
+- 🚵🏾‍♂️ Man Mountain Biking: Medium Dark Skin Tone
+- 🚵🏾‍♀️ Woman Mountain Biking: Medium Dark Skin Tone
+- 🛀🏾 Person Taking Bath: Medium Dark Skin Tone
+- 🛌🏾 Person in Bed: Medium Dark Skin Tone
